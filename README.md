@@ -1,4 +1,4 @@
-# Murphy's bot
+# Stewie's Bot
 Sure you wake up early and what´s is what you need?? Correct you need an insult from the most evil genius from TV....Yes it´s Stewie Griffin: [Samu](https://twitter.com/stewieisangry)<br>
 *People think I go out of my way to piss them off, Trust me, it´s not out of my way at all* :)
 ## What it is?
